@@ -1,4 +1,4 @@
-# 
+# Top QuickBooks modules complémentaires pour Mac OS | Open Source QuickBooks modules complémentaires pour PC Windows. Avec outils de collaboration et outils d'annotation — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
